@@ -1,1 +1,0 @@
-# dekimasuapp.github.io
